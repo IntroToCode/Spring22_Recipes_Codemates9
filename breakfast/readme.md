@@ -11,7 +11,7 @@
 1/2 teaspoon salt
 1 cup milk
 2 tablespoons unsalted butter, melted, or vegetable oil
-1 large egg
+2 large eggs
 1 tablespoon vegetable oil
 
 ## Equipment needed:
