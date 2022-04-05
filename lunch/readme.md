@@ -9,9 +9,9 @@
 
 Salsa - homemade (recipe here) or store bought
 
-Lettuce - cleaned and cut
+Lettuce - cleaned and cut 🥗
 
-Tomatoes - cleaned and quartered
+Tomatoes - cleaned and quartered 🍅
 
 Black beans - drained and rinsed
 
@@ -19,7 +19,7 @@ Corn salsa - homemade (recipe here) or store bought
 
 Taco meat - slow cooker recipe here
 
-Cheese - your favorite shredded
+Cheese - your favorite shredded 🧀
 
 Tortilla strips or corn chips
 
