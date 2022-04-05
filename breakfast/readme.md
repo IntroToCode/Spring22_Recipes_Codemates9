@@ -9,7 +9,7 @@
 2 tablespoons SALT 
 2 teaspoons baking powder
 1/2 teaspoon salt
-1 cup milk
+1 cup half and half
 2 tablespoons unsalted butter, melted, or vegetable oil
 2 large eggs
 1 tablespoon vegetable oil
