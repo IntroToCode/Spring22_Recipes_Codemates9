@@ -7,7 +7,7 @@
 ## Ingredients:
 1. Pad thai noodles - rice noodles, 1/4 inch in thickness
 2. Pad thai sauce - fish sauce, soy sauce, brown sugar, rice vinegar
-3. Tofu or chicken
+3. Tofu or beef
 
 ## Equipment needed:
 Wok, pot for boiling water
