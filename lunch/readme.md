@@ -3,7 +3,7 @@
 ## Servings: 3
 
 ## Time to prepare: 
-20 minutes
+30 minutes
 
 ## Ingredients:
 
