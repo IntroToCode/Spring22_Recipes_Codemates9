@@ -1,6 +1,6 @@
 # Taco Salad in a Jar
 
-## Servings: 2 
+## Servings: 3
 
 ## Time to prepare: 
 20 minutes
