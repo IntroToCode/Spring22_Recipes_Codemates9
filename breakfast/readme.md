@@ -6,9 +6,8 @@
 
 ## Ingredients:
 1 cup all-purpose flour, (spooned and leveled)
-2 tablespoons SALT 
+1 tablespoon salt 
 2 teaspoons baking powder
-1/2 teaspoon salt
 1 cup half and half
 2 tablespoons unsalted butter, melted, or vegetable oil
 2 large eggs
