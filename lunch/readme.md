@@ -18,7 +18,8 @@ Mason Jar - any size will work, I found that wide mouth jars work best
 
 
 ## Equipment needed:
-
+Jar
+Pan
 
 ## Steps for preparation:
 Cook taco meat
@@ -34,3 +35,4 @@ Store in refrigerator until serving
 
 
 ### Codemates #
+Kelly Chu
