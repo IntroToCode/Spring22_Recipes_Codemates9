@@ -23,7 +23,7 @@ Mixed all the ingredient in the bowl, with the help of a the whisky and then pla
 
 
 ### Notes:
-Maple Syrup and fresh berries are excellent toppings for pancakes
+Maple Syrup, sugar powder and fresh berries such as strawberry, raspberry and blueberry are excellent toppings for pancakes
 
 
 ### Codemates #
