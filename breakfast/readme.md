@@ -17,6 +17,7 @@
 Whisky
 Bowl
 Pan
+soohwan
 
 ## Steps for preparation:
 Mixed all the ingredient in the bowl, with the help of a the whisky and then place it on a hot pan for 1 minute each side
