@@ -8,8 +8,9 @@
 1. Pad thai noodles - rice noodles, 1/4 inch in thickness 
 2. Pad thai sauce - fish sauce, soy sauce, brown sugar, rice vinegar 
 3. Tofu or beef 🥩
-4. Nuts - sliced
+4. Nuts - crush
 5. vegetable - whatever you want with sliced
+6. meat - beef is prepared
 
 ## Equipment needed:
 Wok, pot for boiling water 🥤
