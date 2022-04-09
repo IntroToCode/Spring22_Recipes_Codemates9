@@ -17,11 +17,10 @@ Black beans - drained and rinsed
 
 Corn salsa - homemade (recipe here) or store bought
 
-Nuts - whatever you want
-
 Olive - cleaned and cut
 
 Taco meat - slow cooker recipe here
+or cod - for someone prepare fish rather than meat
 
 Cheese - your favorite shredded 🧀
 
