@@ -18,6 +18,7 @@ Wok, pot for boiling water 🥤
 1. Cook rice noodles by pouring boiling water over rice noodles in a big bowl or shallow baking dish and let them soak until they are pliable (about 7-8 minutes)
 2. Cut the chicken or tofu 🐔
 3. Stir fry the ingredients
+4. Simmer ingredients for 10 minutes
 
 
 ### Notes:
