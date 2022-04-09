@@ -2,7 +2,7 @@
 
 ## Servings: 2 people
 
-## Time to prepare: 15 minutes
+## Time to prepare: 20 minutes
 
 ## Ingredients:
 1 cup all-purpose flour, (spooned and leveled)
@@ -10,7 +10,7 @@
 2 teaspoons baking powder
 1 cup half and half
 2 tablespoons unsalted butter, melted, or vegetable oil
-2 large eggs
+3 large eggs
 1 tablespoon vegetable oil
 
 ## Equipment needed:
