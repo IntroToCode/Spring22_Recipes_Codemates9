@@ -35,6 +35,10 @@ Jar
 
 Pan
 
+Chopping Board
+
+Knife
+
 ## Steps for preparation:
 1. Cook taco meat
 
