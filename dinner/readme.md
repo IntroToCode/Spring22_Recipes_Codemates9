@@ -9,8 +9,8 @@
 2. Pad thai sauce - fish sauce, soy sauce, brown sugar, rice vinegar 
 3. Tofu or beef 🥩
 4. Nuts - crush
-5. vegetable - whatever you want with sliced
-6. meat - beef is prepared
+5. Vegetable - whatever you want with sliced
+6. Meat - beef is prepared
 
 ## Equipment needed:
 Wok, pot for boiling water 🥤
