@@ -14,7 +14,7 @@
 1 tablespoon vegetable oil
 
 ## Equipment needed:
-Whisky
+Whisk
 Bowl
 Pan
 
